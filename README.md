@@ -1,0 +1,2 @@
+# Astrology
+Stars Know Everything
